@@ -10,4 +10,5 @@ Buy Players! Choose the most potential assets, invest in up to 15 players in you
 Stargaze! Enjoy watching your players becoming the stars, your invested money will grow with the market price of your players.
 
 Track Performance! Based on the performce of your players after every single match, you will be rewarded according to your tier and player's mark.
-adasportano.com
+
+Read more - https://adasportano.com/
